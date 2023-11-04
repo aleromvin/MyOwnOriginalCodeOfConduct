@@ -8,6 +8,6 @@ This is my code of conduct. This is the code of conduct you WILL follow when con
 4. Make exceptions to rule number 3 whenever you feel like it.
 5. Actually, make exceptions to any of these rules whenever you feel like it. Or perhaps, even, whenever you *don't* feel like it.
 6. Actually, do whatever you wanna do. Act however you wanna act.
-7. But don't cry about it if the way you act gets you banned or otherwise prevents others from being receptive to your efforts of collaborating with them. That's what you get for acting in a way that is annoying.
-8. Actually, do cry about it if you want. As I said, do whatever you wanna do. Like I care.
+7. But don't cry about it if the way you act gets you banned or otherwise prevents others from being receptive to your efforts of collaborating with them. That's what you get for being annoying.
+8. Actually, do cry about it if you want to. As I said, do whatever you wanna do. As if I care.
 9. As Mr. Crowley said: Do what thou wilt shall be the whole of the Law.
